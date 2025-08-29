@@ -1,11 +1,11 @@
 <h1 align="center">Hola 👋, I'm Colin Flaherty</h1>
 <h3 align="center">A Student trying to get by and learn</h3>
 
-- 🪬 I enjoy being active on campus and am part of the LSA Executive board [LSA INSTRAGRAM](https://www.instagram.com/jmu_lsa/)
+- 🪬 I am a student at James Madison Univerity, who is studying Communication with a concentration in Public Relations. I enjoy being active in student life and am part of the LSA Executive board, Grupo Candela as a dancer, Mosaic Connections as an ambasssador, and many other clubs as a member. Drop a follow to the LSA instagram, we are also putting on events and are open to all students.  [LSA INSTRAGRAM](https://www.instagram.com/jmu_lsa/)
 
-- 🌱 I enjoy thrifting, taking pictures and playing soccer. I come from a Peruvian background and am excited for what the rest of my life has to offer
+- 🌱 I enjoy thrifting, taking pictures and playing soccer where I play right back. I come from a Peruvian background and am excited for what the rest of my life has to offer, along with the food.
 
-- 🏃‍♂️ I recently got back into running [STRAVA Account](https://www.strava.com/athletes/184117799)
+- 🏃‍♂️ I recently got back into running so linked I have my [STRAVA Account](https://www.strava.com/athletes/184117799)
 
 - 🤝 Follow my LinkedIN so we can connect [LinkedIN Account](www.linkedin.com/in/colin-flaherty-054ab4283)
 
