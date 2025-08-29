@@ -3,7 +3,7 @@
 
 - 🪬 I enjoy being active on campus and am part of the LSA Executive board [LSA INSTRAGRAM](https://www.instagram.com/jmu_lsa/)
 
-- 🌱 I enjoy thrifting, taking pictures and playing soccer. I come from a Peruvian background and am excited for what the rest of my life has to offer **My Likes and Bio**
+- 🌱 I enjoy thrifting, taking pictures and playing soccer. I come from a Peruvian background and am excited for what the rest of my life has to offer
 
 - 🏃‍♂️ I recently got back into running [STRAVA Account](https://www.strava.com/athletes/184117799)
 
