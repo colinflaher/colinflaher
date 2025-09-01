@@ -1,7 +1,7 @@
 <h1 align="center">Hola 👋, I'm Colin Flaherty</h1>
 <h3 align="center">Embracing every step of the way, Si Se Puede</h3>
 
-- 🪬 I am a student at James Madison University, who is studying Communication with a concentration in Public Relations. I enjoy being active in student life and am part of the LSA Executive board, Grupo Candela as a dancer, Mosaic Connections as an ambassador, and many other clubs as a member. You can check out some of my executive work on the LSA instagram. I have planned, hosted and managed events for hundreds of students, which can show my management and organization skills. [LSA INSTRAGRAM](https://www.instagram.com/jmu_lsa/)
+- 🪬 I am a student at James Madison University, who is studying Communication with a concentration in Public Relations. I enjoy being active in student life and am part of the LSA Executive board, Grupo Candela as a dancer, Mosaic Connections as an ambassador, and many other clubs as a member. You can check out some of my executive work on the LSA instagram. I have planned, hosted and managed events for hundreds of students, which can show my management and organizational skills. [LSA INSTRAGRAM](https://www.instagram.com/jmu_lsa/)
 
 - 🌱 Please contact me, if you are looking for an individual that is hard-wroking, responsible and is looking to make a change. I have experience in many fields, in a variety of positions, from a manager, to self employed business owner at one point. I promise to not disappoint, and more so exceed. **What I bring**
 
