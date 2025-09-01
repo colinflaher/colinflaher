@@ -3,9 +3,9 @@
 
 - 🪬 I am a student at James Madison University, who is studying Communication with a concentration in Public Relations. I enjoy being active in student life and am part of the LSA Executive board, Grupo Candela as a dancer, Mosaic Connections as an ambassador, and many other clubs as a member. You can check out some of my executive work on the LSA instagram. I have planned, hosted and managed events for hundreds of students, which can show my management and organizational skills. [LSA INSTRAGRAM](https://www.instagram.com/jmu_lsa/)
 
-- 🌱 Please contact me, if you are looking for an individual that is hard-wroking, responsible and is looking to make a change. I have experience in many fields, in a variety of positions, from a manager, to self employed business owner at one point. I promise to not disappoint, and more so exceed. **What I bring**
+- 🌱 **What I bring** Please contact me, if you are looking for an individual that is hard-wroking, responsible and is looking to make a change. I have experience in many fields, in a variety of positions, from a manager, to self employed business owner at one point. I promise to not disappoint, and more so exceed.
 
-- 🏃‍♂️ As a worker, I dedicated to routine. An example outside of work, is my running habits, where I do at least 2 miles everyday. I recently have got back into running and recently made a [STRAVA Account](https://www.strava.com/athletes/184117799)
+- 🏃‍♂️ As a worker, and individual, I am dedicated to routine. An example outside of work, is my running habits, where I do at least 2 miles everyday. I recently have got back into running and recently made a [STRAVA Account](https://www.strava.com/athletes/184117799)
 
 - 🤝 To see a little more about how I am as a person, you can look into my music taste. I believe you can tell a lot just from what people listen too. [SPOTIFY Account](https://open.spotify.com/user/19rfgexm75rjp8vynns2gi3v9?si=359e0580dc254736)
 
