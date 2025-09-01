@@ -7,7 +7,7 @@
 
 - 🏃‍♂️ I recently got back into running so linked I have my [STRAVA Account](https://www.strava.com/athletes/184117799)
 
-- 🤝 Follow my LinkedIN so we can connect [LinkedIN Account](www.linkedin.com/in/colin-flaherty-054ab4283)
+- 🤝 Follow my LinkedIN so we can connect [LinkedIN Account](linkedin.com/in/colin-flaherty-054ab4283)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
