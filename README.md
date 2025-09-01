@@ -14,3 +14,5 @@
 <a href="https://linkedin.com/in/colinflaherty" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="colinflaherty" height="30" width="40" /></a>
 <a href="https://instagram.com/colinflaher" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="colinflaher" height="30" width="40" /></a>
 </p>
+
+![GitHub Logo](https://github.githubassets.com/images/modules/logos_page/GitHub-Mark.png "GitHub Logo")
