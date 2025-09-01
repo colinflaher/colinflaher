@@ -15,4 +15,4 @@
 <a href="https://instagram.com/colinflaher" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="colinflaher" height="30" width="40" /></a>
 </p>
 
-![GitHub Logo](images)
+![GitHub Logo](images/github-logo.jpg)
